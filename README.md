@@ -1,4 +1,4 @@
-## Capturas de pantalla
+## Kiroku screenshots
 
 ---
 
